@@ -12,3 +12,4 @@ Connor and Matt! Uncle + Nephew Roblox game making duo. Come look at some of our
 ## Games we're working on
 * [Wizard Fight](https://www.roblox.com/games/9967408420/Wizard-Fight)
 * [Boat Clicker](https://www.roblox.com/games/11801508015/Boating-Clicker)
+* [Oregon Trail](https://www.roblox.com/games/12589758348/oregon)
